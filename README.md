@@ -1,2 +1,0 @@
-MLRITM RESULTS 
-
